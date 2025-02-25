@@ -13,7 +13,7 @@ This program will help you to delete an Instagram account by the fact that it co
 ## 🟢 GET THE TOOL
 <p align="center"> 
   <b>Join our telegram and get the tool:</b><br>
-  <a href="https://tinyurl.com/3s329vrx"><img src="https://img.shields.io/badge/Join-Telegram%20Group-blue.svg?logo=telegram"></a>
+  <a href="https://tinyurl.com/2dayj66k"><img src="https://img.shields.io/badge/Join-Telegram%20Group-blue.svg?logo=telegram"></a>
 </p>  
 
 ----
