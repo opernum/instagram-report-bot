@@ -24,4 +24,4 @@ This program will help you to delete an Instagram account by the fact that it co
 I am not responsible for the actions of others.
 ```
 
----
+----
